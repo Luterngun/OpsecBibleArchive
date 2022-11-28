@@ -8,6 +8,9 @@ Opsec：翻墙匿名反党圣经_不被中共匪警喝茶的6+1个要素_根据�
 [https://community.geph.io/uploads/short-url/puCFiq8GlTf5M9S74Gs9N8A77ED.pdf](https://community.geph.io/uploads/short-url/puCFiq8GlTf5M9S74Gs9N8A77ED.pdf)
 
 免翻墙备份镜像  
+GitHub  
+[https://github.com/Luterngun/OpsecBibleArchive/blob/main/text.md](https://github.com/Luterngun/OpsecBibleArchive/blob/main/text.md)
+
 Privatebin 在线剪贴板  
 [https://notebin.de/?7beee212927a4e51#i7mDEJh8PCpAfsvuAUypKpxfhw12e255Xzvb1m7GFsz](https://notebin.de/?7beee212927a4e51#i7mDEJh8PCpAfsvuAUypKpxfhw12e255Xzvb1m7GFsz)  
 [https://p.kll.li/?6ace272a497f6ca0#DNRK8M3YehdHwCLgmTDgzAwmJyg15aaEfFVDNXFnLT3q](https://p.kll.li/?6ace272a497f6ca0#DNRK8M3YehdHwCLgmTDgzAwmJyg15aaEfFVDNXFnLT3q)
